@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading and learning about technology.
 - 🌱 I’m currently learning um....nothing? If you can give me pointers about what to learn and how to learn, that'd be helpful :)
 - 💞️ I'm a total beginner.
-- 📫 How to reach me- DM me on discord, my username is @kinky pyjamas#7786
+- 📫 How to reach me- DM me on discord, my userna
 
 <!---
 unicorks/unicorks is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
