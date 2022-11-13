@@ -2,4 +2,4 @@
 - 👀 I’m interested in reading and learning about technology.
 - 🌱 I’m currently doing The Odin Project.
 - 💞️ I started learning a few months ago
-- 📫 How to reach me- contact me on Reddit: @unicorks
+- 📫 How to reach me- femmesensuale#7786 on discord
