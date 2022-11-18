@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @unicorks, a student. 
 - 👀 I’m interested in reading and learning about technology.
-- 🌱 I’m currently doing The Odin Project.
-- 💞️ I started learning a few months ago
+- 🌱 I’m currently doing The Odin Project, have nearly finished CS50x
+- 💞️ I started learning about a year ago
 - 📫 How to reach me- femmesensuale#7786 on discord
